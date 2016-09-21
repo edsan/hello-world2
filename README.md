@@ -10,3 +10,6 @@ our fearful trip is done
 the ship has weathered every rock
 the prize we sought is won
 
+i light the fire
+while you place the flower in the bough
+that you bough today
